@@ -9,4 +9,4 @@ If you would like to purchase the source code (New & Refactored) then please con
 
 Racsm, hope your developers are ready to recode? 😂
 
-EDUCATIONAL PURPOSES ONLY !! This is to demonstrate the unreliability in physical receipts in our modern society today and to urge these designer brands to revamp their solution to "purchase proof"
+EDUCATIONAL PURPOSES ONLY !! This is to demonstrate the unreliability of physical receipts in our modern society today and to urge these designer brands to revamp their solution to "purchase proof"
