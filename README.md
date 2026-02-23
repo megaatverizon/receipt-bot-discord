@@ -8,3 +8,5 @@ By the way the source code currently sold to some users is old, this one is refa
 If you would like to purchase the source code (New & Refactored) then please contact me on telegram & I will take this post down (t.me/@megaisreborn)
 
 Racsm, hope your developers are ready to recode? 😂
+
+EDUCATIONAL PURPOSES ONLY !! This is to demonstrate the unreliability in physical receipts in our modern society today and to urge these designer brands to revamp their solution to "purchase proof"
