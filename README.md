@@ -1,4 +1,4 @@
-125 ⭐?
+85 ⭐?
 
 If we achieve this goal, I will release the source code to the best Receipt Generator to have been created yet.
 I have noticed many copying and impersonating the project since we left.
