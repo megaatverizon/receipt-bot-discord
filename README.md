@@ -1,6 +1,6 @@
 85 ⭐?
 
-If we achieve this goal, I will release the source code to the best Receipt Generator (Receiptly) to have been created yet.
+If we achieve this goal, I will release the source code to the best Receipt Generator (Receiptly, check my portfolio on my github page) to have been created yet.
 I have noticed many copying and impersonating the project since we left.
 I have decided to end this fantasy and will release when the goal is met.
 
